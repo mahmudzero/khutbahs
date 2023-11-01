@@ -32,7 +32,7 @@ Allah has promised the ones who have believed and done righteous deeds forgivene
 ## Allah SWT also says in Surah Ali Imran, verse 28
 
 <details>
-  <summary> <h2> expand </h2> </summary>
+  <summary> expand </summary>
 
   We will not translate this
 
@@ -49,7 +49,7 @@ On the authority of Abu Huraira RA, who said, The Messange of Allah SAWS said "A
 
 ## Break & Sit
 
-﴿فَقُلتُ استَغفِروا رَبَّكُم إِنَّهُ كانَ غَفّارًا﴾ [Nūḥ: 10]
+﴿فَقُلتُ استَغفِروا رَبَّكُم إِنَّهُ كانَ غَفّارًا﴾
 
 <hr>
 
@@ -57,4 +57,24 @@ On the authority of Abu Huraira RA, who said, The Messange of Allah SAWS said "A
 
 بسم الله، والحمدلله، والصلاة والسلام على رسول الله، وعلى اله وصحبه ومن والاه
 
-As we see there is lots in the Quran and Sunnah that highlights the importance of righteous and Muslim compnaionship. We see that in Ali Imran, Allah SWT ties salvation from Hell Fire to Islamic Brotherhood.
+As we see there is lots in the Quran and Sunnah that highlights the importance of righteous and Muslim compnaionship. We see that in Surah Ali Imran, Allah SWT ties salvation from Hell Fire to Islamic Brotherhood.
+
+And we see that in Surah Al Fath, Allah SWT says that the people with The Rasool SAWS are merciful and gentle amongst themselves.
+
+When we look at the state of the Muslim Ummah, we see that, generally, we are not adhering to what Allah SWT has prescribed. We see brothers cut friendships because their countries are warring, we see _Muslim countries_ warring over nothing. The izzah that the Muslims had in the early days of the Ummah were in part due to Muslims duty to one another, and our brotherhood. We were once one nation, one body, and when we cared for eachother, Allah SWT gave us victory, peace, and stability. Now we care about borders that the west has imposed on us, and all we see is strife and pain. We need to keep the ties between us, start on a grass roots level of having rahma between us, and ان شاء الله we will be given victory, peace, and stability once more.
+
+# Dua
+- اللهم اعز المسلمين
+- اللهم انصر الإسلام
+- اللهم اغفر لنا خطايانا
+- اللهم ثبت اقدامنا ووحد صفوفنا وانصرنا
+- اللهم اتينا في الدنيا حسنة وفي الأخرة حسنة وقنا عذاب النار
+- اللهم صلي علا صيدنا محمد، و علا آله وصحبه ومن تبعهم باحسان اليوم الدين
+
+﴿إِنَّ اللَّهَ يَأمُرُ بِالعَدلِ وَالإِحسانِ وَإيتاءِ ذِي القُربى وَيَنهى عَنِ الفَحشاءِ وَالمُنكَرِ وَالبَغيِ يَعِظُكُم لَعَلَّكُم تَذَكَّرونَ﴾
+
+اذكروا الله العظيم يذكركم
+واشكروه على نعمه يزدكم
+ولذكر الله أكبر والله يعلم ما تصنعون
+
+Call the Iqamah
