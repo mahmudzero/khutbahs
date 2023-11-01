@@ -1,14 +1,16 @@
+## خُطْبَةَ الْحَاجَةِ
+
 <details>
-  <summary> خُطْبَةَ الْحَاجَةِ </summary>
+  <summary> expand </summary>
 
   إِنَّ الْحَمْدَ لِلَّهِ - نَحْمَدُهُ وَنَسْتَعِينُهُ وَنَسْتَغْفِرُهُ، وَنَعُوذُ بِاللَّهِ مِنْ شُرُورِ أَنْفُسِنَا، مَنْ يَهْدِهِ اللَّهُ فَلَا مُضِلَّ لَهُ، وَمَنْ يُضْلِلْ فَلَا هَادِيَ لَهُ، أَشْهَدُ أَنْ لَا إِلَهَ إِلَّا اللَّهُ، وَأَشْهَدُ أَنَّ مُحَمَّدًا عَبْدُهُ وَرَسُولُهُ ". ثُمَّ يَقْرَأُ ثَلَاثَ آيَاتٍ :  { يَا أَيُّهَا الَّذِينَ آمَنُوا اتَّقُوا اللَّهَ حَقَّ تُقَاتِهِ وَلَا تَمُوتُنَّ إِلَّا وَأَنتُم مُّسْلِمُونَ } ،  { يَا أَيُّهَا النَّاسُ اتَّقُوا رَبَّكُمُ الَّذِي خَلَقَكُم مِّن نَّفْسٍ وَاحِدَةٍ وَخَلَقَ مِنْهَا زَوْجَهَا وَبَثَّ مِنْهُمَا رِجَالًا كَثِيرًا وَنِسَاءً وَاتَّقُوا اللَّهَ الَّذِي تَسَاءَلُونَ بِهِ وَالْأَرْحَامَ إِنَّ اللَّهَ كَانَ عَلَيْكُمْ رَقِيبًا } ،  { يَا أَيُّهَا الَّذِينَ آمَنُوا اتَّقُوا اللَّهَ وَقُولُوا قَوْلًا سَدِيدًا }   { يُصْلِحْ لَكُمْ أَعْمَالَكُمْ وَيَغْفِرْ لَكُمْ ذُنُوبَكُمْ وَمَن يُطِعِ اللَّهَ وَرَسُولَهُ فَقَدْ فَازَ فَوْزًا عَظِيمًا }
 </details>
 
 <hr>
 
-## The first half
+# The first half
 
-## Our conversation today will be about the importance of (righteous) companionship, and it's proof in
+Our conversation today will be about the importance of (righteous) companionship, and it's proof in
 the Quran and Sunnah.
 
 ## Allah SWT says in Surah Ali Imran, verse 103
@@ -27,8 +29,10 @@ Their sign is in their faces from the effects of sujood. That is their descripti
 
 Allah has promised the ones who have believed and done righteous deeds forgiveness and great reward. ﴿
 
+## Allah SWT also says in Surah Ali Imran, verse 28
+
 <details>
-  <summary> <h2> Allah SWT also says in Surah Ali Imran, verse 28 </h2> </summary>
+  <summary> <h2> expand </h2> </summary>
 
   We will not translate this
 
@@ -43,13 +47,13 @@ Allah has promised the ones who have believed and done righteous deeds forgivene
 
 On the authority of Abu Huraira RA, who said, The Messange of Allah SAWS said "A man is on the religion of his (close) friend, so look at who you take as close friends" (Sunan of Abi Dawood and Sunan Al Tirmidi)
 
-## Break
+## Break & Sit
 
 ﴿فَقُلتُ استَغفِروا رَبَّكُم إِنَّهُ كانَ غَفّارًا﴾ [Nūḥ: 10]
 
 <hr>
 
-## The second half
+# The second half
 
 بسم الله، والحمدلله، والصلاة والسلام على رسول الله، وعلى اله وصحبه ومن والاه
 
