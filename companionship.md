@@ -98,7 +98,12 @@ It is core in Islam to have "Husn al Dhan", good opinions/predections of other M
 
 > If I see someone with alcohol dripping from his beard, then I’ll say perhaps it spilled on him. And if I see him on top of a mountain saying, ‘I am your Lord most high’ (أنا ربكم الأعلى), then I’ll say he’s reciting a verse from the Quran.
 
-## We've looked at a base-level of duty we can have amongst each other
+## We've looked at a base-level of duty we can have amongst each other,
+## These can be summarized by the following Hadit from Sahih Bukhari
+
+حَدَّثَنَا  مُحَمَّدٌ ، حَدَّثَنَا  عَمْرُو بْنُ أَبِي سَلَمَةَ ، عَنِ  الْأَوْزَاعِيِّ ، قَالَ : أَخْبَرَنِي  ابْنُ شِهَابٍ ، قَالَ : أَخْبَرَنِي  سَعِيدُ بْنُ الْمُسَيَّبِ  أَنَّ  أَبَا هُرَيْرَةَ  رَضِيَ اللَّهُ عَنْهُ قَالَ : سَمِعْتُ رَسُولَ اللَّهِ صَلَّى اللَّهُ عَلَيْهِ وَسَلَّمَ يَقُولُ : " حَقُّ الْمُسْلِمِ عَلَى الْمُسْلِمِ خَمْسٌ : رَدُّ السَّلَامِ، وَعِيَادَةُ الْمَرِيضِ، وَاتِّبَاعُ الْجَنَائِزِ، وَإِجَابَةُ الدَّعْوَةِ، وَتَشْمِيتُ الْعَاطِسِ ".  تَابَعَهُ  عَبْدُ الرَّزَّاقِ ، قَالَ : أَخْبَرَنَا  مَعْمَرٌ ، وَرَوَاهُ  سَلَامَةُ ، عَنْ  عُقَيْلٍ .
+
+On the authority of Abu Hurari RA, that the Rasool SAWS said: "The duties of one muslim to another are 5, returning the salam, helping and visiting the sick, following their Janazah, responding to an invitation, and Tashmeet (saying "may allah forgive and bless you") when they sneeze"
 
 Lets look at stories from our Righteous Predecessors that also increase the love among Muslims and strengthen our ties.
 
